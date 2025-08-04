@@ -1,3 +1,6 @@
+📢 **Read the full article on Medium:**  
+👉 https://medium.com/@soaf01/7dcc9de8935a  
+
 # 🧠 When AI Forgot My Work: A Memory Continuity Protocol
 
 ## Overview
